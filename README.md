@@ -1,4 +1,4 @@
-# Volleyball Vegends Script 🏐 Ball Hitbox, Powerful Serve, No Cooldown & More! PC/MOBILE PASTEBIN
+# Volleyball Legends Script 🏐 Ball Hitbox, Powerful Serve, No Cooldown & More! PC/MOBILE PASTEBIN
 
 Dominate the game with the best script for **VolleyBall Legends** on Roblox. This ultimate tool is designed for **PC and Mobile** players looking to enhance their performance with advanced hacks like **ball hitbox expansion**, **powerful serve mechanics**, and **no cooldown** abilities. Whether you're a competitive player or just want to enjoy the game with new power, this script is what you need.
 
